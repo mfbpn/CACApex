@@ -1,6 +1,6 @@
 # CAC Apex机场官网地址
 
-最新地址：[cacweb1.xyz](https://www.zfamwn.tech/#/register?code=jcr2fwEz)
+最新地址：[cacweb1.xyz](https://www.zfamwn.tech/#/register?code=1fAZRtc5)
 
 ## CAC Apex介绍
 
